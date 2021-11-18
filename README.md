@@ -1,1 +1,1 @@
-Em breve, novidades... :)
+... Em breve, novidades... :)
